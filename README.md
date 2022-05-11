@@ -1,4 +1,4 @@
-### Winky 👋
+### Winkyy 👋
 
 - 🌱 I’m currently learning IT in HaUI .
 - 💬 Ask me about anything.
